@@ -4,7 +4,7 @@
 Oct-3, 2018 
 
 I reconvened the class after 9-month-long getting away from this course.
-Glat to be back to the course again.
+Glad to be back to the course again.
 
 Week-1 2 programming assignments done..
 
